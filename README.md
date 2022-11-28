@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mazzybeats
-- 👀 I’m interested in photography, photo editing, Mac OS
+- 👀 I’m interested in photography, photo editing, I have mac
 - 🌱 I’m currently learning a lot of things
 - 💞️ I’m looking to collaborate on photography related stuff
 - 📫 How to reach me , this profile
